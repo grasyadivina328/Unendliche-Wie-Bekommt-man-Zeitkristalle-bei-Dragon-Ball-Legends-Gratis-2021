@@ -6,10 +6,10 @@ erhalten Zeitkristalle #GERMAN#
 erhalten Zeitkristalle de
 erhalten Zeitkristalle kostenlos
 
-# [Klicken Sie hier, um Zeitkristalle generieren](https://viraltrends.us/games/39adf68?dbzdeutschgit)
+# [Klicken Sie hier, um Zeitkristalle generieren](https://href.li/?https://todayinfos.us/tips/39adf68?dbzdeutschgit)
 
 
-# Zeitkristalle Bekommen >> https://viraltrends.us/games/39adf68?dbzdeutschgit
+# Zeitkristalle Bekommen >> https://href.li/?https://todayinfos.us/tips/39adf68?dbzdeutschgit
 
 
 
